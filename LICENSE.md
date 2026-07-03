@@ -1,4 +1,4 @@
-#  
+#  Experience anime card clash like never before with anime card clash no-ban Scripts, the #1 Script. Includes teleport and private server access for
 
 
 
